@@ -5,7 +5,7 @@
 * Celine Kerfant, Cel31, archaeobotany
 
 ### Add your Name, GitHub Name, Discipline
-*
+* Paula Gonzalez Luque, modern and contemporary art
 *
 *
 *
