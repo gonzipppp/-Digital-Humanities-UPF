@@ -17,7 +17,7 @@
 *
 *
 *
-*
+* Paula González Luque, Modern and Contemporary art
 *
 *
 *
